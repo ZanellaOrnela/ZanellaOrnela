@@ -39,7 +39,7 @@ Tengo 21 años y me apasiona crear soluciones tecnológicas que mezclen **lógic
 ## 📬 Contacto
 
 - 📧 Email: **zanellaornela1@gmail.com**
-- 💼 LinkedIn: [linkedin.com/in/zanellaornela](https://linkedin.com/in/zanellaornela)
+- 💼 LinkedIn: [linkedin.com/in/zanellaornela](www.linkedin.com/in/ornelazanella)
 - 🌐 Portfolio: *[Próximamente]*
 
 ---
